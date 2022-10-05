@@ -1,0 +1,18 @@
+{
+  "name": "wareeatom001",
+  "theme": "syntax",
+  "version": "0.0.1",
+  "description": "แทงบอลออนไลน์ ฟรีเครดิต",
+  "keywords": [
+    "แทงบอล",
+    "พนันบอลออนไลน์",
+    "เว็บแทงบอล",
+    "แทงบอล ฟรีเครดิต",
+    "เว็บพนันบอล"
+  ],
+  "repository": "https://github.com/Wareemed/wareemed",
+  "license": "MIT",
+  "engines": {
+    "atom": ">=1.0.0 <2.0.0"
+  }
+}
