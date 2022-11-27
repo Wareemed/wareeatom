@@ -50,10 +50,15 @@ Người chơi có thể tham gia đặt cược ở bất kỳ kèo có tỷ l�
 ### • Slots
 Game slot đổi thưởng đã tồn tại hàng thập kỷ và thực sự không thể phủ nhận sức hấp dẫn của trò chơi, bằng chứng là ở nhà cái CAT368 nó vẫn tồn tại và vẫn là trò chơi phổ biến nhất trong các sòng bạc trực tuyến.
 Bạn cũng có thể thử ngay vận may với các dòng game cải tiến và nâng cao cơ hội chiến thắng cho người chơi từ sảnh Habanero và Pragmatic Play với:
+
 • Cuộc Chiến Nảy Lửa
+
 • Samurai
+
 • Công Chúa Cổ Tích
+
 • Cổng Tới Thiên Đàng.
+
 • Đua Tê Giác…
 
 ### • Casino Online – nóng bỏng bàn chơi với Dealer người thật
@@ -63,27 +68,38 @@ Bạn cũng có thể thử ngay vận may với các dòng game cải tiến v�
 Không thể không kể đến là hoạt động chơi xổ số, [đánh đề online](https://cat368.net/danh-de-online/) ở nhà cái CAT368 dựa trên kết quả quay số may mắn của xổ số ba miền Bắc Trung Nam. Ngoài ra ở đây còn đem đến cho khách hàng của mình các hình thức quay số nhanh, quay số tự động đầy hấp dẫn, nhanh chóng, hiệu quả.
 
 ## Hướng Dẫn Nhanh Cách Đăng Ký Tham Gia Nhà Cái CAT368
+
 • Bước 1: Truy cập vào Trang chủ nhà cái qua link web chính thức https://cat368.com
+
 • Bước 2: Nhấn nút <Đăng Ký>.
+
 • Bước 3: Hoàn thành bảng dữ liệu thông tin khách hàng như yêu cầu biểu mẫu gồm: Tên đăng nhập – Mật khẩu – Họ và tên – Số điện thoại.
+
 • Bước 4: Xác nhận yêu cầu về độ tuổi và điều khoản.
+
 • Bước 5: Kiểm tra thông xin và xác nhận tham gia.
 
-
 ## Cách Nạp Tiền Tại Nhà Cái CAT368
- **Bước 1:** Đăng nhập vào hệ thống bằng tài khoản cá nhân.
-**Bước 2:** Chọn tính năng <Gửi Tiền> ở đầu trang.
-**Bước 3:** Chọn hình thức chuyển khoản trực tuyến, bạn có thể chọn Ngân Hàng hoặc các hình thức như Momo, Zalo Pay, Viettel Pay.
-**Bước 4:** Chọn mức tiền gửi hoặc tự nhập số với ít nhất 100.000 và nhiều nhất 500.000.000 VND, tỷ lệ quy đổi 1 điểm = 1.000.
-**Bước 5:** Thực hiện thao tác chuyển tiền đến số tài khoản / ví điện tử mà điểm chơi cung cấp. Lưu ý điền đúng mã số như điểm chơi đã ghi trong yêu cầu chuyển khoản.
-**Bước 6:** Sau khi thực hiện thao tác chuyển thành công vui lòng liên hệ nhân viên CSKH trong 3-5 phút để được hỗ trợ cập nhật tài khoản ngay.
+**Bước 1:** Đăng nhập vào hệ thống bằng tài khoản cá nhân.
 
+**Bước 2:** Chọn tính năng <Gửi Tiền> ở đầu trang.
+
+**Bước 3:** Chọn hình thức chuyển khoản trực tuyến, bạn có thể chọn Ngân Hàng hoặc các hình thức như Momo, Zalo Pay, Viettel Pay.
+
+**Bước 4:** Chọn mức tiền gửi hoặc tự nhập số với ít nhất 100.000 và nhiều nhất 500.000.000 VND, tỷ lệ quy đổi 1 điểm = 1.000.
+
+**Bước 5:** Thực hiện thao tác chuyển tiền đến số tài khoản / ví điện tử mà điểm chơi cung cấp. Lưu ý điền đúng mã số như điểm chơi đã ghi trong yêu cầu chuyển khoản.
+
+**Bước 6:** Sau khi thực hiện thao tác chuyển thành công vui lòng liên hệ nhân viên CSKH trong 3-5 phút để được hỗ trợ cập nhật tài khoản ngay.
 
 ## Cách Nạp Tiền Tại Nhà Cái CAT368
 **Bước 1:** Đăng nhập bằng tài khoản cá nhân – vào trang giao dịch rút tiền.
+
 **Bước 2:** Nếu lần đầu thực hiện thao tác này, người dùng cần điền đủ thông tin tài khoản ngân hàng như yêu cầu của biểu mẫu sau:
 Lưu ý: Phải sử dụng đúng tên tài khoản và tên chủ khoản trong game, trùng với họ và tên đăng ký ban đầu. Ngân hàng – STK – địa chỉ chi nhánh cần cập nhật chính xác.
+
 **Bước 3:** Sau khi xác nhận <Yêu cầu rút tiền> người chơi điền số tiền cần rút vào phiếu thanh toán.
+
 **Bước 4:** Xác nhận rút – điền lại mật khẩu rút tiền để hoàn tất.  Hoàn thành, bạn chỉ cần đợi từ hệ thống xác nhận và chuyển khoản nhanh trong 10p.
 
 ## Những Câu Hỏi Thường Gặp Ở Nhà Cái CAT368
