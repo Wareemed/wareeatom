@@ -10,7 +10,7 @@ CAT368 được đánh giá là một trong những trang [casino online](https:
 
 Với tốc độ truy cập nhanh chóng cùng giao duyệt web bắt mắt không kém phần chất lượng CAT368 và độ bảo mật vô cùng chặt chẽ CAT368 hứa hẹn sẽ là một trang casino online mang đến sự chất lượng, uy tín và cho khách hàng sử dụng những trải nghiệm vô cùng thú vị và hoàn toàn an tâm khi sử dụng.
 
-Ngoài ra [CAT368](https://atom.io/themes/cat368) nổi tiếng là một trong những nhà cái với [tỷ lệ kèo nhà cái](https://cat368.net/soi-keo-nha-cai-viet-nam-hom-nay/) tốt nhất hiện nay trên thị trường
+Ngoài ra [CAT368](https://atom.io/themes/cat368:%20review%20nh%C3%A0%20c%C3%A1i%20uy%20t%C3%ADn%20si%C3%AAu%20l%E1%BB%A3i%20nhu%E1%BA%ADn) nổi tiếng là một trong những nhà cái với [tỷ lệ kèo nhà cái](https://cat368.net/soi-keo-nha-cai-viet-nam-hom-nay/) tốt nhất hiện nay trên thị trường
 
 ## Top 2. Fun88 – Casino Online Đỉnh Nhất Châu Á
 Đầu tiên phải nói đến Fun88, với thiết kế giao diện hiện đại, sang trọng và cung cấp nhiều tính năng thông minh cho khách hàng đồng thời mang tới tới những trải nghiệm đẳng cấp và thời thượng cho người sử dụng.
