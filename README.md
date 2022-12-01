@@ -81,7 +81,7 @@ Nhà cái uy tín thứ 10 được [keo nha cai tv](https://soikeobong.tv/) rev
 
 BÓNG88 giúp người chơi được thỏa sức cá cược với những trận cầu hay nhất hành tinh. Ngay khi thắng cược, người chơi có thể rút thưởng cực nhanh.
 
-💦💦*Mọi thông tin về các nhà cái cá cược uy tín có trên Soikeobong.tv đều được phân tích, tổng hợp đánh giá bởi các chuyên gia hàng đầu, am hiểu chuyên sâu về thị trường cá cược.*💦💦
+💦💦***Mọi thông tin về các nhà cái cá cược uy tín có trên Soikeobong.tv đều được phân tích, tổng hợp đánh giá bởi các chuyên gia hàng đầu, am hiểu chuyên sâu về thị trường cá cược.***💦💦
 
 ##Một số thông tin hấp dẫn khác có trên Soikeobong.tv
 
